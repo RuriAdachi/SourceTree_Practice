@@ -1,1 +1,1 @@
-This project join 7 people. この行を変更しました！
+This project join 51 people. この行を変更しました！
